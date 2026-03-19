@@ -41,7 +41,7 @@
 2. 选择此模板，填写个人信息
 3. 导出 PDF，直接投递
 
-[👉 立即使用此模板](https://wondercv.com/resumes/new?sample_cv_token=f9895d2a55bdf6eb)
+[👉 立即使用此模板](https://wondercv.com/sample/JEZZrDCm)
 
 ---
 
