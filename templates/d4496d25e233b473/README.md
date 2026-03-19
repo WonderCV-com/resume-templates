@@ -36,7 +36,7 @@
 2. 选择此模板，填写个人信息
 3. 导出 PDF，直接投递
 
-[👉 立即使用此模板](https://wondercv.com/sample/WVz0MwP9)
+[👉 立即使用此模板](https://www.wondercv.com/jianlimoban/d4496d25e233b473.html)
 
 ---
 
